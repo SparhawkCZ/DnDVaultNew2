@@ -1,0 +1,2 @@
+- **Popis:** Nábřežní krčma plná podvodníků, vrahů a zoufalých námořníků. Stoly jsou lepkavé od rozlitého rumu, vzduch prosycený kouřem a solí. Uprostřed místnosti se často odehrávají šarvátky, zatímco v zadní části sedí ti, kteří tahají za nitky.
+- **Zvláštnost:** [[Kapitánka Vilda -Černý úsměv -Radová (Orčice)]] má v zadní místnosti svou kancelář, kde uzavírá obchody a plánuje další loupeže.

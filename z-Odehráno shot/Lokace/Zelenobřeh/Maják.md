@@ -1,0 +1,1 @@
+Ti co v sobě najdou jen to nejlepší mohou zažehnout maják a získat tak správný směr.
